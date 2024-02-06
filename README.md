@@ -13,5 +13,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: lalcantarvega@mail.pima.edu
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I am afraid of clowns🤡
-- I love hiking🥾 and sports🏅
+-  ♥ I love hiking🥾 and sports🏅
 
